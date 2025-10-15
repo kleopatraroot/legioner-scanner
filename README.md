@@ -1,2 +1,3 @@
 # legioner-scanner
-My firsh project on github 
+tgk : https://t.me/+zonbBqOyk8EyZWY1
+creator : kleopatra
